@@ -1,4 +1,4 @@
-[097196.full.pdf](https://github.com/Raen123/Zenodozenodo/files/15221842/097196.full.pdf)
+#1000$ оплатить [097196.full.pdf](https://github.com/Raen123/Zenodozenodo/files/15221842/097196.full.pdf)
 [0x1ff0d7acf94d76f018e80a3b0d51c902c4297791aa99453ff0f27ba4b9f148af.pdf](https://github.com/Raen123/Zenodozenodo/files/15221841/0x1ff0d7acf94d76f018e80a3b0d51c902c4297791aa99453ff0f27ba4b9f148af.pdf)
 [0x1ff0d7acf94d76f018e80a3b0d51c902c4297791aa99453ff0f27ba4b9f148af (1).pdf](https://github.com/Raen123/Zenodozenodo/files/15221840/0x1ff0d7acf94d76f018e80a3b0d51c902c4297791aa99453ff0f27ba4b9f148af.1.pdf)
 [0x1ff0d7acf94d76f018e80a3b0d51c902c4297791aa99453ff0f27ba4b9f148af (2).pdf](https://github.com/Raen123/Zenodozenodo/files/15221839/0x1ff0d7acf94d76f018e80a3b0d51c902c4297791aa99453ff0f27ba4b9f148af.2.pdf)
