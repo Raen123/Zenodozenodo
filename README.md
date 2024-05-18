@@ -10,3 +10,4 @@
 [СМИ.pptx](https://github.com/Raen123/Zenodozenodo/files/15221778/default.pptx)
 [СМИ (1).pptx](https://github.com/Raen123/Zenodozenodo/files/15221762/1.pptx)
 [СМИ (2).pptx](https://github.com/Raen123/Zenodozenodo/files/15221758/2.pptx)
+status_200
